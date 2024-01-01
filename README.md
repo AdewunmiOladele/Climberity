@@ -4,4 +4,4 @@ As your dedicated sherpa on the journey to self-mastery, we are here to cheer yo
 
 At CourageSpark Academy, we are not just about learning; we are about transformation. We are committed to witnessing the metamorphosis of doubt into unwavering self-belief and the blossoming of hidden talents into full-fledged expertise. Our dream is to be woven into the very fabric of your success story, serving as a constant source of motivation and support as you carve your own path to greatness.
 
-Join us on this courageous climb and together, let's rewrite the narrative of your future. Take the first step, answer the first question, and watch your confidence soar. CourageSpark Academy: Where every answer paves the way to a summit of your own making.
+Join us on this courageous adventure and together, let's rewrite the narrative of your future. Take the first step, answer the first question, and watch your confidence soar. CourageSpark Academy: Where every answer paves the way to a summit of your own making.
